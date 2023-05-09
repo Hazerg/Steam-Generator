@@ -10,3 +10,11 @@ HOW TO DOWNLOAD
 3. Then extract it just using the windows extractor
 4.  And at least run the .exe and choose your modes 
 5.  Have Fun!!!!
+
+
+
+
+
+DISCLAIMER!!!!!!
+
+Because no one is as stupid as losing his/her giftcard , could this program be pretty slow and it could take alot of time before you get an actually working giftcard. 
