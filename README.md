@@ -17,7 +17,7 @@ HOW TO DOWNLOAD
 
 DISCLAIMER!!!!!!
 
-Because no one is as stupid as losing his/her giftcard, so this program can be pretty slow and it could take alot of time before you get an actually working giftcard. 
+No one is as stupid as losing his/her giftcard, so this program can be pretty slow and it could take alot of time before you get an actually working giftcard. 
 
 
 
